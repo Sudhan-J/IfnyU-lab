@@ -7,6 +7,6 @@
 5. I have included a test sample video for testing..
 
 
-Hope you like my work,\n
+Hope you like my work,\
 Thank you
 Sudhan J
